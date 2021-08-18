@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Iyan Victor
+- 👋 Hi, I’m @Iyanu Victor
 - 👀 I’m interested in WordPress 
 - 🌱 I’m always learning
 - 💞️ I’m looking to collaborate on
